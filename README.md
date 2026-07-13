@@ -28,4 +28,4 @@ Luego de lo desarrollado, la reflexion a la que llego fue que todos cometemos er
 
 Conclucion
 
-Esto me llevo a comprender que todos necesitamos un curso de Mentalidad o de liderazgo, para poder salir adelante y comprender por lo que pasan dia a dia los empleados de cierta empresa. Asi que coincidero desarrolar mis conocimientos y habilidades a poder realizar el liderazgo que necesitamops. 
+Esto me llevo a comprender que todos necesitamos un curso de Mentalidad o de liderazgo, para poder salir adelante y comprender por lo que pasan dia a dia los empleados de cierta empresa. Asi que coincidero desarrolar mis conocimientos y habilidades a poder realizar el liderazgo que necesitamos. 
