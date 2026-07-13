@@ -19,10 +19,13 @@ Todo esto me enseño que hay muchas cosas que se hacen mal. No hay que buscar cu
 Tambien aprendi que para que alguien quiera mejorar hay que ayudarlo a que mejora sin hacerle un regaño.
 
 Evidencias.
+
 Este blog se llevo a cabo usando GITHUB. Se uso como ejemple la experiencia dia a dia de un trabajo estable que se vuelve toxico todos los dias. 
 
 Reflexion
+
 Luego de lo desarrollado, la reflexion a la que llego fue que todos cometemos errores, ya que no todos somos perfectos, pero esta en como decimos las cosas y en como nos hacemos llegar a los demas para poder crear un ambiente de trabajo llevadero y sin roces unos con otros.
 
 Conclucion
+
 Esto me llevo a comprender que todos necesitamos un curso de Mentalidad o de liderazgo, para poder salir adelante y comprender por lo que pasan dia a dia los empleados de cierta empresa. Asi que coincidero desarrolar mis conocimientos y habilidades a poder realizar el liderazgo que necesitamops. 
